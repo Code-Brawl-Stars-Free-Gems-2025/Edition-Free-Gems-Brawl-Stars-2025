@@ -13,7 +13,7 @@
 </li>
 </ul>
 <p>&nbsp;</p>
-<h2><a href="https://allresources.xyz/brawlstars.html/">GET FREE GEMS</a></h2>
+<h2><a href="https://sites.google.com/view/brawl-stars-1000-free-gems-unl/">GET FREE GEMS</a></h2>
 <p>&nbsp;</p>
 <h3>2. <strong>Can I Get Free Gems in Brawl Stars?</strong></h3>
 <ul>
